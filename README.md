@@ -2,3 +2,6 @@
 dzien dobry
 hejka
 papapa
+
+
+tesknie
