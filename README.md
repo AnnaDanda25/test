@@ -4,5 +4,7 @@ hejka
 papapa
 
 
-tesknie
+znowu sie widzimy
+
+niesamowite
 
